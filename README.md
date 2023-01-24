@@ -23,5 +23,5 @@ A院 高正昊。
 不信？试一试你就知道了。
 
 ### 来图
-![image](https://user-images.githubusercontent.com/110610449/214054434-b0c403d2-e4a8-4058-b584-3ffb0770383b.png)
+![image](https://user-images.githubusercontent.com/110610449/214228832-cb3281f9-39e9-47a7-9c43-2e2ea277c38a.png)
 
